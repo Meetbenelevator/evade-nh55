@@ -1,4 +1,4 @@
-#  
+#  evade Scripts updated offers the most advanced evade Script, with god mode and one-hit kill. Perfect for dominating any match.
 
 
 
